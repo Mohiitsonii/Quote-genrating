@@ -1,1 +1,1 @@
-# Quote-genrating
+The right thing to do and the hard thing to do are usually the same. | **by Steve Maraboli**
