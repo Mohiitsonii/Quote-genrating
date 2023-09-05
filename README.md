@@ -1,1 +1,1 @@
-Watch what you say, and whatever you say, practice it. | **by Soyen Shaku**
+Do Something. If it works, do more of it. If it doesn't, do something else. | **by Franklin D. Roosevelt**
