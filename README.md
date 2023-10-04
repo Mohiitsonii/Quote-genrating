@@ -1,1 +1,1 @@
-Knowing is not enough, we must apply. Willing is not enough, we must do. | **by Johann Wolfgang von Goethe**
+Wherever there is danger, there lurks opportunity; wherever there is opportunity, there lurks danger. The two are inseparable. | **by Earl Nightingale**
