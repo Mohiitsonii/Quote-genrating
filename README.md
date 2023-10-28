@@ -1,1 +1,1 @@
-Fashion fades, only style remains the same. | **by Coco Chanel**
+Animals don't hate, and we're supposed to be better than them. | **by Elvis Presley**
