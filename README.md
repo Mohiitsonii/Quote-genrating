@@ -1,1 +1,1 @@
-Animals don't hate, and we're supposed to be better than them. | **by Elvis Presley**
+Choose a job you love, and you will never have to work a day in your life.  | **by Confucius**
