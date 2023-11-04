@@ -1,1 +1,1 @@
-No kind action ever stops with itself. One kind action leads to another. Good example is followed. | **by Amelia Earhart**
+Every failure brings with it the seed of an equivalent success. | **by Napoleon Hill**
